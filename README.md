@@ -1,3 +1,5 @@
+<meta name="google-site-verification" content="rU1xJ1DbFd3fpxMTjCzl6IxQmXHw2iF1wPJFhfK5gKo" />
+
 # Privacy Policy for Kagami
 
 **Last updated: March 2026**
